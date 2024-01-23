@@ -1,2 +1,1 @@
-# rickyyy-exp-2
-Exp 2
+negga
